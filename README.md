@@ -16,10 +16,11 @@
 - Adult (2002) | ♀
 - I can either be goofiest or awkward shi,depends lol maybe both at times
 - I'm often offtab if you don't see me talking/sitting with friends/sitting alone. I'm most likely playing other games,or busy with work
-- I'm LGBTQ+ friendly! please note if I say "gay" that is not in negative connotation,it's mostly for my friends. It will never meant to be an insult from me,I apologize in advance if anyone is offended ;;
+- I'm LGBTQ+ friendly
 - I only play in 18+ server
 - C+H is fine, preferred when my characters have it in their names~ W2I if you want to int with me
 - Current fixation! Umamusume Pretty Derby
+- I don't accept random friend reqs, it's turned off most of the time
 - **Please don't copy/take inspo from my designs,tysm! Most of my characters have "DNC"(Do Not Copy) in the name.**
 
 
