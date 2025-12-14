@@ -1,0 +1,33 @@
+<p align="center"> " ᴇᴛɪᴀᴍ ɪɴ ᴀʀᴄᴀᴅɪᴀ, ᴍᴇᴄᴜᴍ ᴀᴅʜᴜᴄ ᴀᴍʙᴜʟᴀs. "</p>
+<h1 align="center" style="color:#f6c1d1;">
+
+<p align="center">
+  <img src="https://i.pinimg.com/originals/03/a1/92/03a192a2407f3fede88135c034b7a13f.gif" alt="Pastel Sakura" width="100%" height="250px" />
+</p>
+
+
+<h3 align="center">︶⊹︶︶୨୧︶︶⊹︶</h3>
+
+## ***✧ About Me ✧***
+
+*Hello hello, this profile is mainly for PonyTown~ wip from time to time*
+
+- Aria 
+- Adult (2002) | ♀
+- I can either be goofiest or awkward shi,depends lol maybe both at times
+- I'm often offtab if you don't see me talking/sitting with friends/sitting alone. I'm most likely playing other games,or busy with work
+- I'm LGBTQ+ friendly
+- I only play in 18+ server
+- C+H is fine, preferred when my characters have it in their names~ W2I if you want to int with me
+- Current fixation! Umamusume Pretty Derby
+- I don't accept random friend reqs, it's turned off most of the time
+- **Please don't copy/take inspo from my designs,tysm! Most of my characters have "DNC"(Do Not Copy) in the name.**
+
+
+<h3 align="center">︶⊹︶︶୨୧︶︶⊹︶</h3>
+
+## ***DNI | DO NOT INTERACT***
+
+- Basic DNI criteria / any -phobes
+- if you're just going to be an asshole to me/my friends
+- Minors / that's why I'm only in 18+ server,I am not comfortable befriending with minors
